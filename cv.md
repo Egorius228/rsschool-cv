@@ -1,4 +1,5 @@
-![image](https://github.com/Egorius228/rsschool-cv/assets/137078005/8f62aa53-0397-4880-ada0-ec5622f366a8)
+![image](https://github.com/Egorius228/rsschool-cv/assets/137078005/f7d2eabc-68de-40b9-8672-9dfa5652d635)
+
 
 
 # Egor Pegov
