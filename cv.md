@@ -1,3 +1,6 @@
+![image](https://github.com/Egorius228/rsschool-cv/assets/137078005/8f62aa53-0397-4880-ada0-ec5622f366a8)
+
+
 # Egor Pegov
 __contact with me__
 
